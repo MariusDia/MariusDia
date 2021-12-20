@@ -1,6 +1,6 @@
 ### Hi there 👋 I'm Marius
 
-📖 I'm studying at the ESIR (Superior Engineering School of Rennes, France)
+📖 I'm studying at the ESIR (Graduate Engineering School of Rennes, France)
 
 ✈️ I'm currently doing an exchange programme at the University of Oulu, Finland
 
